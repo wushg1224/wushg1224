@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @wushg1224
 - 👀 I’m interested in cat
 - 🌱 I’m currently learning IT in uts
-- 💞️ I’m looking to collaborate on building a grocery website
+- 💞️ I’m looking to changing my career path
 - 📫 How to reach me eh, procrastination, pls do not reach me otherwise ill keep talking to you
 - ⚡ Fun fact: uts, basically u have to learn everything on youtube
 
